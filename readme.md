@@ -1,6 +1,6 @@
 <h2 align="center">Discord Server: <a href="https://discord.gg/catcha">discord.gg/catcha</a></h2>
 
-<h1>Tuto <a href="https://vm.tiktok.com/ZMNWwxY6x/">ici</a></h1>
+<h1>Tuto <a href="https://vm.tiktok.com/ZMNWwxY6x/">Here</a></h1>
 
 <p align="center">
 <strong>Star and follows me <3</strong>
